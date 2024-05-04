@@ -7,4 +7,4 @@
 - ⛳ places: In pt i always sit on sonic fandoms and more
 - ⚡ Fun fact: i can do a backflip!
 - 🚫 DNC my skins unless friends
-- 🎉 silies > @mvrie
+- 🎉 silies > @mvrie @NightBubbles 
