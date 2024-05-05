@@ -5,7 +5,7 @@
 _20240505051018.png?ex=663803e0&is=
 6636b260&hm=af15cb660ac8fdc84d56427023
 bb9211a331a24630fb4c1be6db9a28c7ff6c0f&
-"<width="197" height="197">
+"<width="197" height="197">https://pin.it/1XUqnfoPf
 </p>
 - 👋 Hi, I’m @sunrivse
 - 👀 I’m interested in sonic the hedgehog and more fandom!...
