@@ -1,5 +1,5 @@
-https://pin.it/1XUqnfoPf
- -👋 Hi, I’m @sunrivse
+
+- 👋 Hi, I’m @sunrivse
 - 👀 I’m interested in sonic the hedgehog and more fandom!...
 - 🌱 I’m currently learning social medias...
 - 💞️ I was born in Malaysia
