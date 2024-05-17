@@ -13,3 +13,8 @@
 - 🙇 im ambivert so i don't talk much sometimes im extrovert or neither introvert
 - 💐 anxiety and depression
 - 🌠 comfortable skins - fleetway , amy , sonic , shadow , silver , tails , cream , knuckles , metal
+- 🗣️ call me sun, sunrivse,solar,sol,vinn,vinny,
+- 🌟 don't ask why i don't ship characters
+- 🇵🇸 FREE PALESTINE
+- ✳️ Im lesbian in game only ( NOT IRL )
+- ❤️ I LOVE MY GF ONE AND FOREVER 
