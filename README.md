@@ -8,7 +8,7 @@
 - ⛳ places: on pt i always sit on sonic fandoms and more
 - ⚡ Fun fact: i can do a backflip!
 - 🚫 DNC my skins unless friends
-- 🎉 silies > @mvrie @NightBubbles @SirP3rcival @riorson @metallicdemise and all of my friends ^^
+- 🎉 silies > @mvrie @NightBubbles @BombNerd @riorson @metallicdemise and all of my friends ^^
 - ❌ SHIPS DNI
 - 🙇 im ambivert so i don't talk much sometimes im extrovert or neither introvert
 - 💐 anxiety and depression
@@ -18,3 +18,4 @@
 - 🇵🇸 FREE PALESTINE
 - ✳️ Im lesbian in game only ( NOT IRL )
 - ❤️ I LOVE MY GF ONE AND FOREVER 
+- 🌜 Autism and ADHD 
