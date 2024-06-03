@@ -1,4 +1,5 @@
-![Untitled168_20240603204857](https://github.com/sunrivse/sunrivse/assets/167609620/cb535434-edbe-4ac6-8d1c-3190fa901a87)
+![Untitled168_20240603204857](https://github.com/sunrivse/sunrivse/assets/167609620/e57eff86-c685-4883-a564-329f05f3dfcf)
+
 
 
 𝙃𝙄 𝙃𝙀𝙇𝙇𝙊𝙊 𝙒𝙀𝙇𝘾𝙊𝙈𝙀 𝙏𝙊 𝙈𝙔 𝙍𝙀𝘼𝘿𝙈𝙀.𝙈𝘿 𝙏𝙃𝙄𝙎 𝙄𝙎 𝙈𝙔 𝙋𝙁𝙋
