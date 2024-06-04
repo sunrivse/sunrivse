@@ -19,7 +19,7 @@
 
   𝙄𝙈 𝙊𝙁𝙁𝙏𝘼𝘽 𝘼𝙉𝘿 𝘼𝙁𝙆 𝘼𝙇𝙒𝘼𝙔𝙎
 
-  pls call me sol / solar/ sun / sunrives / coco , kit or kitto
+  my name is Coco but call me Coco,kit or kitto
 
   ![srb2kart-sonic](https://github.com/sunrivse/sunrivse/assets/167609620/3eb18598-ca67-4e9b-b286-58f1a5176385)
 
