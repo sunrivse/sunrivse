@@ -19,4 +19,16 @@
 
   𝙄𝙈 𝙊𝙁𝙁𝙏𝘼𝘽 𝘼𝙉𝘿 𝘼𝙁𝙆 𝘼𝙇𝙒𝘼𝙔𝙎
 
-  
+  pls call me sol / solar/ sun / sunrives / coco , kit or kitto
+
+  ![srb2kart-sonic](https://github.com/sunrivse/sunrivse/assets/167609620/3eb18598-ca67-4e9b-b286-58f1a5176385)
+
+ pls do not call me names
+ little artist ^^
+ name tags i use
+
+1. dniuf - do not interact unless friends
+2. dni - do not interact
+3. dnd - do not disturb
+4. afd - away from devices
+5. offtab - not on tab
