@@ -22,7 +22,8 @@
 
   Coco ,kit or kitto
 
-![888d24eeb53b9471b6fc7ec0903b0a53](https://github.com/sunrivse/sunrivse/assets/167609620/5ef9cb2a-4eb6-440b-b3e0-baa1a895111b)
+![Untitled169_20240605180443](https://github.com/sunrivse/sunrivse/assets/167609620/763ee9a4-a84e-46c2-a482-149a9db621ed)
+
 
 
  pls do not call me names
