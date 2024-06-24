@@ -25,7 +25,8 @@
 
   𝘾𝙊𝘾𝙊, 𝙆𝙄𝙏 𝙊𝙍 𝙆𝙄𝙏𝙏𝙊
 
-![4c68e100f9ada4a0891b806cbbefa485](https://github.com/sunrivse/sunrivse/assets/167609620/d41c9359-2dfc-4bbc-a907-3f866296bb14)
+![d04d1bdb574d17bbf5468fc3d0064fda](https://github.com/sunrivse/sunrivse/assets/167609620/aa4d85c8-5732-4464-a86d-f7ac1d0d3988)
+
 
 
 
