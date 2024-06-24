@@ -1,6 +1,6 @@
 
 
-![5203d959cfe1c83e698a04afe8b07fe8](https://github.com/sunrivse/sunrivse/assets/167609620/cf065985-010e-4fd2-b311-0769cd806f63)
+![46bb2fd763e7d207c5120c4c212c2267](https://github.com/sunrivse/sunrivse/assets/167609620/a31b79b2-7374-4afe-8d2f-0a1c761ce46e)
 
 
 
@@ -30,9 +30,6 @@
 
 
 
-
-
- 𝙋𝙇𝙎 𝘿𝙊 𝙉𝙊𝙏 𝘾𝘼𝙇𝙇 𝙈𝙀 𝙉𝘼𝙈𝙀𝙎
  
  𝙇𝙄𝙏𝙏𝙇𝙀 𝘼𝙍𝙏𝙄𝙎𝙏
  
