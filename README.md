@@ -35,4 +35,9 @@ under 12 dni. hh/Hb dni I only cos them for my friends
 2. dni  - do not interact 
 3. DND - do not disturb 
 4. afd - away from devices
-5. offtab
+5. offtab - not on tab
+6. dniucf - do not interact unless close friend
+7. w2i - whisper to interact 
+8. w2c - whisper to contact 
+9. dniup - do not interact unless party
+10. int - interact 
