@@ -32,7 +32,7 @@ under 12 dni. hh/Hb dni I only cos them for my friends
  name tags you should know
 
 1. dniuf - do not interact unless friends 
-2. 𝘿𝙉𝙄 - 𝘿𝙊 𝙉𝙊𝙏 𝙄𝙉𝙏𝙀𝙍𝘼𝘾𝙏
-3. 𝘿𝙉𝘿 - 𝘿𝙊 𝙉𝙊𝙏 𝘿𝙄𝙎𝙏𝙐𝙍𝘽
-4. 𝘼𝙁𝘿 - 𝘼𝙒𝘼𝙔 𝙁𝙍𝙊𝙈 𝘿𝙀𝙑𝙄𝘾𝙀𝙎
-5. 𝙊𝙁𝙁𝙏𝘼𝘽 - 𝙉𝙊𝙏 𝙊𝙉 𝙏𝘼𝘽
+2. dni  - do not interact 
+3. DND - do not disturb 
+4. afd - away from devices
+5. offtab
