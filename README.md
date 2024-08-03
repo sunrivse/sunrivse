@@ -41,3 +41,6 @@ under 12 dni. hh/Hb dni I only cos them for my friends
 8. w2c - whisper to contact 
 9. dniup - do not interact unless party
 10. int - interact 
+
+
+I'm sensitive and always shy so I might be less talkative 
