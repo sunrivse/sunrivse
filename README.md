@@ -13,10 +13,10 @@ ships dni -_•
   sonamy: js not into that
 
   shadamy:js no
- 
-  blazamy:no.
 
   above 19 x 17 and under: ew no.
+
+  sonouge: hell naw
 
 
 ![8a87dbec1da0e92f0ca9b6c3be832cd0](https://github.com/sunrivse/sunrivse/assets/167609620/a2266b44-1dc9-42dd-a79b-bb74be931024)
