@@ -5,29 +5,15 @@
 
 
 my name is Asher, but you can also refer me as sunrivse.i may be mute but I need new friends
- I'm a boring person to int and sensitive.
-
- 
-ships dni -_•
-
-  sonamy: js not into that
-
-  shadamy:js no
-
-  above 19 x 17 and under: ew no.
-
-  sonouge: hell naw
+ I'm a boring person to int and sensitive
 
 
 ![8a87dbec1da0e92f0ca9b6c3be832cd0](https://github.com/sunrivse/sunrivse/assets/167609620/a2266b44-1dc9-42dd-a79b-bb74be931024)
 
-
-
  
  basic dni 
 
-
-under 12 dni. hh/Hb dni I only cos them for my friends 
+under 12 dni. yah I don't like to be friends with kids cus I might get uncomf
 
  name tags you should know
 
