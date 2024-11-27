@@ -4,29 +4,34 @@
 
 
 
-my name is Asher, but you can also refer me as sunrivse.i may be mute but I need new friends
- I'm a boring person to int and sensitive
+
+I would like to introduce myself; my name is Asher. I prefer to be referred to as "Sunrise."
+
+Please find below my basic guidelines for engagement with others:
+
+1. Individuals under the age of 12 may wish to refrain from initiating contact, as I find interactions with younger individuals can be uncomfortable for me.
+
+The following acronyms represent my preferences regarding interaction:
+
+1. DNIUF - Do Not Interact Unless Friends 
+2. DNI - Do Not Interact 
+3. DND - Do Not Disturb 
+4. AFD - Away From Devices 
+5. OFFTAB - Not on Tab 
+6. DNIUCF - Do Not Interact Unless Close Friends 
+7. W2I - Whisper to Interact 
+8. W2C - Whisper to Contact 
+9. DNIUP - Do Not Interact Unless at a Party 
+10. INT - Interact 
+
+Please note that I tend to be sensitive and may appear reserved; as such, I may not engage in conversation as frequently.
+
+Thank you for understanding my communication preferences.
+
+Best regards,  
+Asher (Sunrise)
 
 
 ![8a87dbec1da0e92f0ca9b6c3be832cd0](https://github.com/sunrivse/sunrivse/assets/167609620/a2266b44-1dc9-42dd-a79b-bb74be931024)
 
  
- basic dni 
-
-under 12 dni. yah I don't like to be friends with kids cus I might get uncomf
-
- name tags you should know
-
-1. dniuf - do not interact unless friends 
-2. dni  - do not interact 
-3. DND - do not disturb 
-4. afd - away from devices
-5. offtab - not on tab
-6. dniucf - do not interact unless close friend
-7. w2i - whisper to interact 
-8. w2c - whisper to contact 
-9. dniup - do not interact unless party
-10. int - interact 
-
-
-I'm sensitive and always shy so I might be less talkative 
