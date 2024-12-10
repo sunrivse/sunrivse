@@ -1,15 +1,20 @@
-
-
-![553c102d5abbacc042ef8f7ce56f1629](https://github.com/sunrivse/sunrivse/assets/167609620/ea0cdfac-5af6-4e89-b305-4e35810db868)
+![1000004521](https://github.com/user-attachments/assets/7cd4e78a-84b3-4fd0-8059-a66eefbea925)
 
 
 
+⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
 
 I would like to introduce myself; my name is Asher. I prefer to be referred to as "Sunrise."
 
+˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
+
 Please find below my basic guidelines for engagement with others:
 
+⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
+
 1. Individuals under the age of 12 may wish to refrain from initiating contact, as I find interactions with younger individuals can be uncomfortable for me.
+ 
+˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
 The following acronyms represent my preferences regarding interaction:
 
@@ -24,6 +29,8 @@ The following acronyms represent my preferences regarding interaction:
 9. DNIUP - Do Not Interact Unless at a Party 
 10. INT - Interact 
 
+⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
+
 Please note that I tend to be sensitive and may appear reserved; as such, I may not engage in conversation as frequently.
 
 Thank you for understanding my communication preferences.
@@ -32,6 +39,12 @@ Best regards,
 Asher (Sunrise)
 
 
-![8a87dbec1da0e92f0ca9b6c3be832cd0](https://github.com/sunrivse/sunrivse/assets/167609620/a2266b44-1dc9-42dd-a79b-bb74be931024)
+![1000004523](https://github.com/user-attachments/assets/6fd12d44-eef3-4c2b-9955-b7d1ecaea7e8)
 
- 
+˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
+
+ Thank you for reading this far<3
+
+
+ ![1000004524](https://github.com/user-attachments/assets/9e31b5b0-9fdd-4461-9bd8-aeb4b8ab214e)
+
