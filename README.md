@@ -48,3 +48,10 @@ Asher (Sunrise)
 
  ![1000004524](https://github.com/user-attachments/assets/9e31b5b0-9fdd-4461-9bd8-aeb4b8ab214e)
 
+
+
+
+![IMG_0173](https://github.com/user-attachments/assets/cfae210e-825a-43b9-8486-ed3f62e39d36)
+
+
+me and my wifey fr <3
