@@ -1,5 +1,5 @@
-![1000004521](https://github.com/user-attachments/assets/7cd4e78a-84b3-4fd0-8059-a66eefbea925)
-
+![IMG_0178](https://github.com/user-attachments/assets/c3e41a70-5ab2-4308-a746-9618b5cca907)
+———————————————————————————----
 
 
 ⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
@@ -38,24 +38,18 @@ Thank you for understanding my communication preferences.
 Best regards,  
 Asher (Sunrise)
 
-
-![1000004523](https://github.com/user-attachments/assets/6fd12d44-eef3-4c2b-9955-b7d1ecaea7e8)
+—————————————————————————————————————————-
+![IMG_0179](https://github.com/user-attachments/assets/90181a0a-3614-4aad-8e9e-13ddb82e0131)
+—————————————————————————————————————————
 
 ˚ ₊ ︵﹒⊹ ๑ ︵︵ ๑ ⊹﹒︵
 
  Thank you for reading this far<3
 
-
- ![1000004524](https://github.com/user-attachments/assets/9e31b5b0-9fdd-4461-9bd8-aeb4b8ab214e)
-
-
-
-
-![IMG_0173](https://github.com/user-attachments/assets/cfae210e-825a-43b9-8486-ed3f62e39d36)
-
-
-me and my wifey fr <3
+——-----------------------------------------------
+![IMG_0180](https://github.com/user-attachments/assets/f1db78fc-a127-4f0c-9bb6-4cf0b1616d8a)
+----------------------------------------------
 
 
 
-Dni ppl - Neko ( you'll never know her.)
+![IMG_0181](https://github.com/user-attachments/assets/57f2f930-5162-4e0c-8665-de28fac6b082)
