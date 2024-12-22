@@ -36,7 +36,7 @@ The following acronyms represent my preferences regarding interaction:
 
 ⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂⠁⠁⠂⠄⠄⠂ ⠂⠄⠄⠂☆
 
-Please note that I tend to be VERY sensitive and may appear reserved; as such, I may not engage in conversation as frequently.
+Please note that I tend to be VERY sensitive, clingy and emotional, and may appear reserved; as such, I may not engage in conversation as frequently.
 
 Thank you for understanding my communication preferences.
 
