@@ -35,3 +35,26 @@ I don't want to talk about her.
 
 Those 2 people are nothing but shitty disappointment.
 
+╭┈──── ◌ೄ◌ྀ ˊˎBefore you int !!
+
+________________
+
+I tend to be VERY sensitive, clingy and emotional so please get used to that. Also I'm often playing while it's night time and always busy in the afternoon !!
+
+- - ┈┈∘┈˃̶༒˂̶┈∘┈┈ - -
+
+Info about me!!!
+
+________________
+
+My favorite sonic character is Tails because I like him since I was a kid ( keep in mind it's not a crush !!! ) since I'm turning 18 this year i still love tails!!
+
+❢◥ ▬▬▬ ◆ ▬▬▬ ◤❢
+
+Now here's players I don't like!! ( Dni )
+
+_______________________________
+
+-Mean players , why are y'all so mean can't y'all be nice for a while because I always see new players getting bullied. Just because they touch your pixels doesn't mean they gonna do something to it !!
+
+-drama / roleplaying players. Sorry but I don't really like roleplaying and dramas because I'm lazy and prefer peace
