@@ -1,4 +1,4 @@
-
+ ᏇᏋႱᏟ𐒀𐒄Ꮛ Ꮏ𐒀 𐒄Ꮍ ᎵᎯᎶᏋ
 ![1000006440](https://github.com/user-attachments/assets/595c03f0-75ae-4297-ab06-5463df43e91a)
 
 
@@ -115,3 +115,4 @@ The end
 Im tired typing this shit so please read it
 
 ┗━✦❘༻༺❘✦━━┛
+![1000006441](https://github.com/user-attachments/assets/7bacd70e-b218-4062-b4ed-8781b558d296)
