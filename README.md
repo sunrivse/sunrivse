@@ -6,10 +6,15 @@
 🦇Nicknamez:
 
 ... [Ash3r] ◌ೄ
+
 ≡;- ꒰ °Sunrivs3 ꒱
+
 ❛ L3zy ༉‧₊˚
+
 '*•.¸♡ Ash ♡¸.•*'
+
 ❛ Lez ༉‧₊˚
+
 ↳ Sun ༉‧₊
 
 < 🌌 ' I'm 17 ( turning 18 this year !!)
