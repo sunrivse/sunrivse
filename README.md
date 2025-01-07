@@ -58,3 +58,55 @@ _______________________________
 -Mean players , why are y'all so mean can't y'all be nice for a while because I always see new players getting bullied. Just because they touch your pixels doesn't mean they gonna do something to it !!
 
 -drama / roleplaying players. Sorry but I don't really like roleplaying and dramas because I'm lazy and prefer peace
+
+-TOXIC transformers players. Okay, I don't really like this fandom but i sometimes sit with my girlfriend which is at transformers area and recently one of them hide me for no reason and wanted to play with my girlfriend. ( You should ask first before playing with my gf or else im lonely!!)
+
+-Adult theme. Okay seriously, There's kids in public server instead go to 18+ server to talk about adult themes!!
+
+-Dandy world. I only don't like the proshippers because it's disgusting.
+
+-pp troll skin. The skin is not funny instead it's disgusting !! ( PLEASE BE AWARE THERE ARE KIDS SO IF YOU WANT TO TROLL GO TO 18+ SERVER)
+
+-hh/hb. I only like the characters !! But I don't support the fandom and the creator
+
+-Under 12. I don't like interacting with minors because they're making me uncomfortable
+
+RACIST/P3D0Z/GORE ENJOYERS/HOMOPHOBIC/TRANSPHOBIC/AGE GAP DATERS DNI.
+
+•❅───✧❅✦❅✧───❅•
+
+My pookies ( besties )
+
+... [🍰.Cheeszecake !!] ◌ೄ
+
+≡;- ꒰ °🦇.Lance / kit / shads ꒱
+
+❛ 🔥.ILoveFleetway !! ༉‧₊˚
+
+'*•.¸♡ 🌼.Dandelionsea.🌊♡¸.•*'
+
+❛ ☀️.s0nkysun / olive.💧 !!༉‧₊˚
+
+↳ .👾.Metallicdemise.🤖 (My online brother) ༉‧₊
+
+───✱*.｡:｡✱*.:｡✧*.｡✰ ───
+
+married to Jeantelle ... 💍 !
+
+─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
+
+Extra info !!
+
+════ ⋆★⋆ ════
+
+I'm always at sonic area but sometimes I'm at other places with my friend !! Or sometimes I'm alone at other fandoms !! I also crown 👑 people because I love their skins just to be kind <3 !!
+
+≪ °❈° ≫≪ °❈° ≫
+
+Discord : .ashxer0
+
+The end
+
+Im tired typing this shit so please read it
+
+┗━✦❘༻༺❘✦━━┛
