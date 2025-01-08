@@ -16,6 +16,7 @@
 ❛ Lez ༉‧₊˚
 
 ↳ Sun ༉‧₊
+≡;- ꒰ °rivse ꒱
 
 < 🌌 ' I'm 17 ( turning 18 this year !!)
 
