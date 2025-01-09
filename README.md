@@ -71,7 +71,7 @@ _______________________________
 
 -drama / roleplaying players. Sorry but I don't really like roleplaying and dramas because I'm lazy and prefer peace
 
--TOXIC transformers players. Okay, I don't really like this fandom but i sometimes sit with my girlfriend which is at transformers area and recently one of them hide me for no reason and wanted to play with my girlfriend. ( You should ask first before playing with my gf or else im lonely!!)
+-TOXIC transformers players. Almost same as Mean players.
 
 -Adult theme. Okay seriously, There's kids in public server instead go to 18+ server to talk about adult themes!!
 
