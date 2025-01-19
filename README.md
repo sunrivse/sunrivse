@@ -111,7 +111,7 @@ Extra info !!
 
 ════ ⋆★⋆ ════
 
-I'm always at sonic area but sometimes I'm at other places with my friend !! Or sometimes I'm alone at other fandoms !! I also crown 👑 people because I love their skins just to be kind <3 !!
+I'm always at sonic area but sometimes I'm at other places with my friend !! Or sometimes I'm alone at other fandoms !! I also crown 👑 people because I love their skins just to be kind <3 !! and also be aware that my grammar may be that bad because I either speak Malay or Spanish 
 
 ≪ °❈° ≫≪ °❈° ≫
 
