@@ -103,7 +103,7 @@ My pookies ( besties )
 
 ───✱*.｡:｡✱*.:｡✧*.｡✰ ───
 
-I'm single ( PLEASE LOVE MEMEMDMENX
+I'm single ( I need a husband 😔 )
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
