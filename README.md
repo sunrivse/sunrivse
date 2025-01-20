@@ -103,7 +103,7 @@ My pookies ( besties )
 
 ───✱*.｡:｡✱*.:｡✧*.｡✰ ───
 
-married to Jeantelle ... 💍 ! ( I miss her sm)
+I'm single ( PLEASE LOVE MEMEMDMENX
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
