@@ -115,7 +115,7 @@ I'm always at sonic area but sometimes I'm at other places with my friend !! Or 
 
 ≪ °❈° ≫≪ °❈° ≫
 
-Discord : .ashxer0
+Discord : .ashxer0 (in case to be friends :]
 
 The end
 
