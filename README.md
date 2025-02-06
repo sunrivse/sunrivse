@@ -63,7 +63,7 @@ My favorite sonic character is Tails because I like him since I was a kid ( keep
 
 ❢◥ ▬▬▬ ◆ ▬▬▬ ◤❢
 
-Now here's players I don't like!! ( Dni )
+if you are one of these players dni
 
 _______________________________
 
