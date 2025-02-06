@@ -83,7 +83,7 @@ _______________________________
 
 -Under 12. I don't like interacting with minors because they're making me uncomfortable
 
-RACIST/P3D0Z/GORE ENJOYERS/HOMOPHOBIC/TRANSPHOBIC/AGE GAP DATERS DNI.
+there are more but I'm lazy
 
 •❅───✧❅✦❅✧───❅•
 
