@@ -19,7 +19,7 @@
 
 ≡;- ꒰ °rivse ꒱
 
-< 🌌 ' I'm 17 ( turning 18 this year !!)
+ I'm 17 ( turning 18 this year !!)
 
 •·.·''·.·•Artist!! 🖌️🎨 ( I don't post my drawings but I love to draw)•·.·''·.·
 
