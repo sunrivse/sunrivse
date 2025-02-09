@@ -75,8 +75,6 @@ _______________________________
 
 -Adult theme. Okay seriously, There's kids in public server instead go to 18+ server to talk about adult themes!!
 
--Dandy world. I only don't like the proshippers because it's disgusting.
-
 -pp troll skin. The skin is not funny instead it's disgusting !! ( PLEASE BE AWARE THERE ARE KIDS SO IF YOU WANT TO TROLL GO TO 18+ SERVER)
 
 -hh/hb. I only like the characters !! But I don't support the fandom and the creator
