@@ -59,7 +59,7 @@ Info about me!!!
 
 ________________
 
-My favorite sonic character is Tails because I like him since I was a kid ( keep in mind it's not a crush !!! ) since I'm turning 18 this year i still love tails!!
+My favorite sonic character is Tails because I like him since I was a kid and I kin him !!!( keep in mind it's not a crush !!! ) since I'm turning 18 this year i still love tails!! I'm also in phighting fandom !! I kin boombox!! he so silly
 
 ❢◥ ▬▬▬ ◆ ▬▬▬ ◤❢
 
@@ -109,7 +109,7 @@ Extra info !!
 
 ════ ⋆★⋆ ════
 
-I'm always at sonic area but sometimes I'm at other places with my friend !! Or sometimes I'm alone at other fandoms !! I also crown 👑 people because I love their skins just to be kind <3 !! and also be aware that my grammar may be that bad because I either speak Malay or Spanish 
+I'm always at sonic area but sometimes I'm at other places with my friend !! Or sometimes I'm alone at other fandoms like phighting. I also crown 👑 people because I love their skins just to be kind <3 !! and also be aware that my grammar may be that bad because I either speak Malay or Spanish 
 
 ≪ °❈° ≫≪ °❈° ≫
 
