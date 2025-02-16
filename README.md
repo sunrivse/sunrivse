@@ -35,15 +35,13 @@ But if you want to talk about your issues ask me first because I might be in a b
 
 『 ↳✧･ﾟHere's the people I don't want to int. ( no reasons cus I hate them and I'm lazy )
 
-neko ( transformers area ) 
-
 Stargazingcountlessstar ( sonic area )
 
 Lilac ( a purple hedgehog ) ( sonic area )
 
 Marla ( BombNerd ) ( genshin impact area )
 
-Those 4 people are nothing but shitty disappointment. ( fuck off you weirdos looking ass bitches )
+Those 3 people are nothing but shitty disappointment. ( fuck off you weirdos looking ass bitches )
 
 ╭┈──── ◌ೄ◌ྀ ˊˎBefore you int !!
 
@@ -68,8 +66,6 @@ _______________________________
 -Mean players , why are y'all so mean can't y'all be nice for a while because I always see new players getting bullied. Just because they touch your pixels doesn't mean they gonna do something to it !!
 
 -drama / roleplaying players. Sorry but I don't really like roleplaying and dramas because I'm lazy and prefer peace
-
--TOXIC transformers players. Almost same as Mean players.
 
 -Adult theme. Okay seriously, There's kids in public server instead go to 18+ server to talk about adult themes!!
 
