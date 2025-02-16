@@ -51,7 +51,7 @@ Those 2 people are nothing but shitty disappointment.
 
 ________________
 
-I tend to be VERY sensitive, clingy and emotional so please get used to that. Also I'm often playing while it's night time and always busy in the afternoon !!
+I tend to be VERY sensitive, clingy and emotional so please get used to that. Also I'm often playing during noon !! 
 
 - - ┈┈∘┈˃̶༒˂̶┈∘┈┈ - -
 
