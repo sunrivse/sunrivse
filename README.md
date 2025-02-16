@@ -33,19 +33,17 @@ But if you want to talk about your issues ask me first because I might be in a b
 
 - - ┈┈∘┈˃̶༒˂̶┈∘┈┈ - -
 
-『 ↳✧･ﾟHere's the people I don't want to int. ( Comes with a reason ofc )
+『 ↳✧･ﾟHere's the people I don't want to int. ( no reasons cus I hate them and I'm lazy )
 
-Neko
+neko ( transformers area ) 
 
-Reason is because she's really mean to me
+Stargazingcountlessstar ( sonic area )
 
-( I tried to apologize to her because my cousin was playing my phone and accidentally unfriended her and I lied to her that it was my anger because I don't want to upset my cousin and she didn't want to forgive me and started to being mean to me. )
+Lilac ( a purple hedgehog ) ( sonic area )
 
-Lilac ( a purple hedgehog oc )
+Marla ( BombNerd ) ( genshin impact area )
 
-I don't want to talk about her.
-
-Those 2 people are nothing but shitty disappointment.
+Those 4 people are nothing but shitty disappointment. ( fuck off you weirdos looking ass bitches )
 
 ╭┈──── ◌ೄ◌ྀ ˊˎBefore you int !!
 
