@@ -25,6 +25,10 @@
 
 ˚₊· ͟͟͞͞➳❥ I'm Malaysian !! / Spaniards!! ( Spain )
 
+this is important!! please listen!!
+——————————————————————————————————-——-
+I am currently experiencing significant stress due to a recurring issue. I often feel depressed and seek comfort by cuddling with individuals with whom I am comfortable, particularly those I trust, rather than with strangers. It is important to note that when I am feeling down, I typically choose to sit beside my closest friends or family members. However, despite my efforts to manage my emotions, I frequently find myself overwhelmed, which has understandably impacted my interactions with others. Regrettably, I have already lost two important relationships as a result of this situation.
+
 ⎯⎯ ୨ Bipolar ୧ ⎯
 
 I'm really emotional and please don't dump your trauma / issue w me if I'm not in a mood because it upset me alot!! I don't mind if you want to vent just dm my disc it's @ .ashxer0
