@@ -107,7 +107,7 @@ Extra info !!
 
 ════ ⋆★⋆ ════
 
-I'm always at sonic area but sometimes I'm at other places with my friend !! Or sometimes I'm alone at other fandoms like phighting. I also crown 👑 people because I love their skins just to be kind <3 !! and also be aware that my grammar may be that bad because I either speak Malay or Spanish since my dad is half Norwegian I can speak it a bit not too much
+I'm always at sonic area but sometimes I'm at other places with my friend !! Or sometimes I'm alone at other fandoms like phighting. I also crown 👑 people because I love their skins just to be kind <3 !! and also be aware that my grammar may be that bad because I either speak Malay or Spanish since my dad is half Norwegian I can speak it a bit not too much. I just found out I have Dyscuculia known as math dyslexia and I still count with my fingers and others.
 
 ≪ °❈° ≫≪ °❈° ≫
 
