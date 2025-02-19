@@ -91,9 +91,9 @@ My pookies ( besties ) ( follow them if you want!!!)
 
 '*•.¸♡ 🌼.Dandelionsea.🌊♡¸.•*' [@dandelionseasys](https://GitHub.com/dandelionseasys) and [@hedgehoghysteria](https://GitHub.com/hedgehoghysteria)
 
-❛ ☀️.s0nkysun / olive.💧 !!༉‧₊˚[@s0nkysun(https://GitHub.com/s0nkysun)
+❛ ☀️.s0nkysun / olive.💧 !!༉‧₊˚[@s0nkysun](https://GitHub.com/s0nkysun)
 
-↳ .👾.Metallicdemise.🤖 (My online brother) ༉ [MetallicDemise]
+↳ .👾.Metallicdemise.🤖 (My online brother) ༉[MetallicDemise(https://GitHub.com/MetallicDemise)
 
 ... [💣.ebongrim !!] ◌ೄ‧₊ @ebongrim
 
