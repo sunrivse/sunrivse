@@ -83,9 +83,9 @@ there are more but I'm lazy
 
 My pookies ( besties ) ( follow them if you want!!!)
 
-... [🍰.Cheeszecake !!] ◌ೄ [Text](https://github.com/pikopikohammer)
+... [🍰.Cheeszecake !!] ◌ೄ [@pikopikohammer](https://github.com/pikopikohammer)
 
-≡;- ꒰ °🦇.Lance / kit / shads ꒱ @FrontierzAmy
+≡;- ꒰ °🦇.Lance / kit / shads ꒱ [@FrontierzAmy](https://GitHub.com/FrontierzAmy) and [@rxuge]
 
 ❛ 🔥.ILoveFleetway !! ༉‧₊˚ @ILoveFleetway
 
