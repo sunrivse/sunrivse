@@ -85,15 +85,15 @@ My pookies ( besties ) ( follow them if you want!!!)
 
 ... [🍰.Cheeszecake !!] ◌ೄ [@pikopikohammer](https://github.com/pikopikohammer)
 
-≡;- ꒰ °🦇.Lance / kit / shads ꒱ [@FrontierzAmy](https://GitHub.com/FrontierzAmy) and [@rxuge]
+≡;- ꒰ °🦇.Lance / kit / shads ꒱ [@FrontierzAmy](https://GitHub.com/FrontierzAmy) and [@rxuge](https://GitHub.com/rxuge)
 
-❛ 🔥.ILoveFleetway !! ༉‧₊˚ @ILoveFleetway
+❛ 🔥.ILoveFleetway !! ༉‧₊˚ [@ILoveFleetway](https://GitHub.com/ILoveFleetway)
 
-'*•.¸♡ 🌼.Dandelionsea.🌊♡¸.•*' @dandelionseasys and @hedgehoghysteria
+'*•.¸♡ 🌼.Dandelionsea.🌊♡¸.•*' [@dandelionseasys](https://GitHub.com/dandelionseasys) and [@hedgehoghysteria](https://GitHub.com/hedgehoghysteria)
 
-❛ ☀️.s0nkysun / olive.💧 !!༉‧₊˚ @s0nkysun
+❛ ☀️.s0nkysun / olive.💧 !!༉‧₊˚[@s0nkysun(https://GitHub.com/s0nkysun)
 
-↳ .👾.Metallicdemise.🤖 (My online brother) ༉ @MetallicDemise
+↳ .👾.Metallicdemise.🤖 (My online brother) ༉ [MetallicDemise]
 
 ... [💣.ebongrim !!] ◌ೄ‧₊ @ebongrim
 
