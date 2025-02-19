@@ -81,20 +81,21 @@ there are more but I'm lazy
 
 •❅───✧❅✦❅✧───❅•
 
-My pookies ( besties )
+My pookies ( besties ) ( follow them if you want!!!)
 
-... [🍰.Cheeszecake !!] ◌ೄ
+... [🍰.Cheeszecake !!] ◌ೄ @pikopikohammer
 
-≡;- ꒰ °🦇.Lance / kit / shads ꒱
+≡;- ꒰ °🦇.Lance / kit / shads ꒱ @FrontierzAmy
 
-❛ 🔥.ILoveFleetway !! ༉‧₊˚
+❛ 🔥.ILoveFleetway !! ༉‧₊˚ @ILoveFleetway
 
-'*•.¸♡ 🌼.Dandelionsea.🌊♡¸.•*'
+'*•.¸♡ 🌼.Dandelionsea.🌊♡¸.•*' @dandelionseasys and @hedgehoghysteria
 
-❛ ☀️.s0nkysun / olive.💧 !!༉‧₊˚
+❛ ☀️.s0nkysun / olive.💧 !!༉‧₊˚ @s0nkysun
 
-↳ .👾.Metallicdemise.🤖 (My online brother) ༉
-... [💣.ebongrim !!] ◌ೄ‧₊
+↳ .👾.Metallicdemise.🤖 (My online brother) ༉ @MetallicDemise
+
+... [💣.ebongrim !!] ◌ೄ‧₊ @ebongrim
 
 there are other people but I will do soon since in really busy this year with college 
 
