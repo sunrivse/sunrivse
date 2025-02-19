@@ -83,7 +83,7 @@ there are more but I'm lazy
 
 My pookies ( besties ) ( follow them if you want!!!)
 
-... [🍰.Cheeszecake !!] ◌ೄ @pikopikohammer
+... [🍰.Cheeszecake !!] ◌ೄ [Text](https://github.com/dandelionseasys?tab=following)
 
 ≡;- ꒰ °🦇.Lance / kit / shads ꒱ @FrontierzAmy
 
