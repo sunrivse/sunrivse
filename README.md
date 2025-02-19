@@ -95,7 +95,7 @@ My pookies ( besties ) ( follow them if you want!!!)
 
 ↳ .👾.Metallicdemise.🤖 (My online brother) ༉[@MetallicDemise](https://GitHub.com/MetallicDemise)
 
-... [💣.ebongrim / veil!!] ◌ೄ‧₊ @ebongrim [@ebongrim](https://GitHub.com/ebongrim)
+... [💣.ebongrim / veil!!] ◌ೄ‧₊ [@ebongrim](https://GitHub.com/ebongrim)
 
 there are other people but I will do soon since in really busy this year with college 
 
