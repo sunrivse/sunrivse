@@ -97,7 +97,7 @@ My pookies ( besties ) ( follow them if you want!!!)
 
 ... [💣.ebongrim / veil!!] ◌ೄ‧₊ [@ebongrim](https://GitHub.com/ebongrim)
 
-there are other people but I will do soon since in really busy this year with college 
+there are other people but I will do soon since i'm really busy this year with college 
 
 ───✱*.｡:｡✱*.:｡✧*.｡✰ ───
 
