@@ -39,13 +39,11 @@ But if you want to talk about your issues ask me first because I might be in a b
 
 『 ↳✧･ﾟHere's the people I don't want to int. ( no reasons cus I hate them and I'm lazy )
 
-Stargazingcountlessstar ( sonic area )
-
 Lilac ( a purple hedgehog ) ( sonic area )
 
 Marla ( BombNerd ) ( genshin impact area )
 
-Those 3 people are nothing but shitty disappointment. ( fuck off you weirdos looking ass bitches )
+Those 2 people are nothing but shitty disappointment. ( fuck off you weirdos looking ass bitches )
 
 ╭┈──── ◌ೄ◌ྀ ˊˎBefore you int !!
 
@@ -95,7 +93,10 @@ My pookies ( besties )
 
 ❛ ☀️.s0nkysun / olive.💧 !!༉‧₊˚
 
-↳ .👾.Metallicdemise.🤖 (My online brother) ༉‧₊
+↳ .👾.Metallicdemise.🤖 (My online brother) ༉
+... [💣.ebongrim !!] ◌ೄ‧₊
+
+there are other people but I will do soon since in really busy this year with college 
 
 ───✱*.｡:｡✱*.:｡✧*.｡✰ ───
 
