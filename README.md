@@ -54,7 +54,7 @@ Those 2 people are nothing but shitty disappointment. ( fuck off you weirdos loo
 
 ________________
 
-I tend to be VERY sensitive, clingy and emotional so please get used to that. Also I'm always online half of the day ! I just have classes teehee 
+I tend to be VERY sensitive, clingy and emotional so please get used to that. Also I'm always online half of the day ! I just have classes teehee. also, please get used to me because I usually feel depressed every night ( day to you maybe ) and if you feel uncomfortable with it please tell me before things get ugly.
 
 - - ┈┈∘┈˃̶༒˂̶┈∘┈┈ - -
 
