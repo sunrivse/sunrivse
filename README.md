@@ -92,7 +92,7 @@ My pookies ( besties ) ( follow them if you want!!!)
 
 ≡;- ꒰ °🦇.Lance / kit / shads ꒱ [@FrontierzAmy](https://GitHub.com/FrontierzAmy) and [@rxuge](https://GitHub.com/rxuge)
 
-❛ 🔥.ILoveFleetway !! ༉‧₊˚ [@ILoveFleetway](https://GitHub.com/ILoveFleetway)
+❛ 🔥.ILoveFleetway !! ༉‧₊˚ [@ILoveFleetway](https://GitHub.com/ILoveFleetway) <- silly online mommm !!!!!!
 
 '*•.¸♡ 🌼.Dandelionsea.🌊♡¸.•*' [@dandelionseasys](https://GitHub.com/dandelionseasys) and [@hedgehoghysteria](https://GitHub.com/hedgehoghysteria)
 
