@@ -1,7 +1,7 @@
  ᏇᏋႱᏟ𐒀𐒄Ꮛ
 ![1000006440](https://github.com/user-attachments/assets/595c03f0-75ae-4297-ab06-5463df43e91a)
 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=sunrivse)
+)![](https://komarev.com/ghpvc/?username=sunrivse=3B1717)
 
 
 
