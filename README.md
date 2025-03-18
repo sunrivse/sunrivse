@@ -111,7 +111,7 @@ there are other people but I will do soon since i'm really busy this year with c
 
 ───✱*.｡:｡✱*.:｡✧*.｡✰ ───
 
-Taken by . . . 💍 Tobi<3
+Taken by . . . 💍 Dexter<3
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
