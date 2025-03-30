@@ -33,7 +33,7 @@
 
 need comfort?_______________________________________
 
- feel free to ask me for comforts!! though I'm not good at cheering up people hehe! but I like spreading kindness to people so you are welcome to cuddle, ask for comforts and by any chance to vc ! (ofc it's on discord. you can talk about it I don't mind !!) but I'm really busy during mornings and oftenly play during afternoon !! because of college that made me busy 😞 
+ feel free to ask me for comforts!! though I'm not good at cheering up people hehe! but I like spreading kindness to people so you are welcome to cuddle, ask for comforts and by any chance to vc ! (ofc it's on discord. you can talk about it I don't mind !!) but I'm really busy during mornings and oftenly play during afternoon !! because of college and work made me busy 😞 
 
 this is important!! please read!!
 —————————————————————————————————
@@ -111,7 +111,7 @@ there are other people but I will do soon since i'm really busy this year with c
 
 ───✱*.｡:｡✱*.:｡✧*.｡✰ ───
 
-Taken by . . . 💍 Dexter<3
+ I'm Married with my hubby [@obscuriities](https://GitHub.com/obscuriities)
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 
