@@ -1,7 +1,7 @@
 ![1000023901](https://github.com/user-attachments/assets/3eb1efed-c3dd-47c0-b0ed-8c8a19ef0206)
 
 
-My name is Asher. I’m an 18-year-old university student with a strong interest in various fandoms. I enjoy being part of different communities, discussing characters, stories, and ideas that resonate with me. Talking about the things I care about is something I genuinely enjoy, especially when I find people who share the same passions.
+My name is Asher. I’m an 18-year-old woman with a strong interest in various fandoms. I enjoy being part of different communities, discussing characters, stories, and ideas that resonate with me. Talking about the things I care about is something I genuinely enjoy, especially when I find people who share the same passions.
 
 By nature, I’m an introvert. I tend to be quiet and reserved around people I don’t know well. However, once I feel comfortable with someone, my personality shifts — I become much more open, energetic, and expressive. If I act outgoing or hyper around you, it’s because I feel safe enough to be myself.
 
